@@ -1,1 +1,1 @@
-Projetos de criados em cursos
+Projetos criados em cursos
